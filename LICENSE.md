@@ -1,4 +1,4 @@
-#  
+#  instant driving empire Script is the best driving empire Script, featuring no cooldown and infinite resources. Safe and powerful for all your needs.
 
 
 
